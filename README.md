@@ -5,8 +5,8 @@ estoy aprendiendo git
 
 sigo aprendiendo git
 
+otras cosasitas más
 
-y añado más cosas para ver el proceso
+hice más cambios
 
-otras cosasitas másç
 
